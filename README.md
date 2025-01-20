@@ -1,1 +1,1 @@
-# chatgpt-2025-1st
+# kosa-chatgpt-2025-1st
